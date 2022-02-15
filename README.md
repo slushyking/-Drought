@@ -15,3 +15,10 @@ Scientists think that drought is directly affected by human-caused global warmin
 **How can we help with drought?**
 
 
+
+Sources
+
+https://www.statista.com/chart/25101/countries-by-drought-risk/#:~:text=More%20affected%20countries%2C%20which%20carry,past%2C%20which%20majorly%20diminished%20crops. 
+[The World Map of Drought Risk](https://www.statista.com/chart/25101/countries-by-drought-risk/#:~:text=More%20affected%20countries%2C%20which%20carry,past%2C%20which%20majorly%20diminished%20crops.)
+
+[Western Drought](https://www.nytimes.com/2022/02/14/climate/western-drought-megadrought.html)
