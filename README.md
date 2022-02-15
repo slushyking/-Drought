@@ -6,10 +6,12 @@ Drought is a prolonged period of abnormally low rainfall, leading to a shortage 
 
 **Where does it happen?**
 
-Common places that experience drought include the American Southwest, more specifically the states of California, Nevada, Utah and Arizona. These states are experiencing unprecedented levels of heat and dryness.
+Droughts can happen anywhere in the world, although usually in already hot and dry areas. Common places that experience drought include the American Southwest, more specifically the states of California, Nevada, Utah and Arizona. These states are experiencing unprecedented levels of heat and dryness. Other countires with high risk of drought includ Moldova, Ukraine, Bangladesh, India, and Serbia. 
 
 **Why does drought happen?**
 
 Scientists think that drought is directly affected by human-caused global warming. Carbon emmisions from human activity have cause the planet to warm up, meaning less rain falls in certain areas. Although climate change affects droughts, it doesn't actually cause them. Droughts are a natural occurence caused by things like ocean temperatures, changes in the jet stream, and changes in the local landscape. 
+
+**How can we help with drought?**
 
 
