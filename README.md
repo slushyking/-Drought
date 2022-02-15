@@ -10,6 +10,6 @@ Common places that experience drought include the American Southwest, more speci
 
 **Why does drought happen?**
 
-Scientists think that drought is directly affected by human-caused global warming. Carbon emmisions from human activity have cause the planet to warm up, meaning less rain falls in certain areas. 
+Scientists think that drought is directly affected by human-caused global warming. Carbon emmisions from human activity have cause the planet to warm up, meaning less rain falls in certain areas. Although climate change affects droughts, it doesn't actually cause them. Droughts are a natural occurence caused by things like ocean temperatures, changes in the jet stream, and changes in the local landscape. 
 
 
