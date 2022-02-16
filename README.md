@@ -2,7 +2,7 @@
 
 **What is drought?**
 
-Drought is a prolonged period of abnormally low rainfall, leading to a shortage of water. Drought almost always comes with extremely hot and/or dry weather. This can end up being detrimental to the animals or plants living in the area experiencing drought.
+Drought is a prolonged period of abnormally low rainfall, leading to a shortage of water. Drought almost always comes with extremely hot and/or dry weather. This can end up being detrimental to the animals or plants living in the area experiencing drought. Animals or plants adapted to living in 
 
 **Where does it happen?**
 
@@ -14,11 +14,11 @@ Scientists think that drought is directly affected by human-caused global warmin
 
 **How can we help with drought?**
 
+Drought can be helped through many ways. One such way is using water efficiently. Sometimes when you use water you may unintentionally use too much. Some examples of things you can do in everyday life that can help with conserving water is using lessing water in the shower, when you brush your teeth, and when you wash your hands. Approximately 9% of all water in the U.S. is lost through leaks.
 
 
-Sources
+Sources:
 
-https://www.statista.com/chart/25101/countries-by-drought-risk/#:~:text=More%20affected%20countries%2C%20which%20carry,past%2C%20which%20majorly%20diminished%20crops. 
 [The World Map of Drought Risk](https://www.statista.com/chart/25101/countries-by-drought-risk/#:~:text=More%20affected%20countries%2C%20which%20carry,past%2C%20which%20majorly%20diminished%20crops.)
 
 [Western Drought](https://www.nytimes.com/2022/02/14/climate/western-drought-megadrought.html)
