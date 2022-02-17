@@ -2,7 +2,7 @@
 
 **What is drought?**
 
-Drought is a prolonged period of abnormally low rainfall, leading to a shortage of water. Drought almost always comes with extremely hot and/or dry weather. This can end up being detrimental to the animals or plants living in the area experiencing drought. Animals or plants adapted to living in areas not used to dry weather may not be able to thrive once the drought hits. They may die of lack of water or from too much heat.
+Drought is a prolonged period of abnormally low rainfall, leading to a shortage of water. Drought almost always comes with extremely hot and/or dry weather. This can end up being detrimental to the animals or plants living in the area experiencing drought. Animals or plants adapted to living in areas not used to dry weather may not be able to thrive once the drought hits. They may die of lack of water or from too much heat. Not only are plants and animals affected, humans are also affected. People without access to fresh water normally will have even less access to fresh drinking water during the drought.
 
 **Where does it happen?**
 
